@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  There's one person I look up to soo much and he is Tony Stark (Yh IronMan). WHY???/ Cuz building feels soo cooo. Imagine me in an Iron Man suit—I WILL MAKE THAT HAPPEN and that day would be the best f**** day of my life. ⚡
+  There's one person I look up to soo much and he is Tony Stark (Yh IronMan). WHY???/ Cuz building feels soo coool. Imagine me in an Iron Man suit—I WILL MAKE THAT HAPPEN and that day would be the best f**** day of my life. ⚡
 </p>
 
 <p align="center">
